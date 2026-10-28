@@ -5,4 +5,5 @@ baska bir repo :D
 https://github.com/TrosaCheatzzzz/Leracraft_Rezillikleri
 
 
-<img width="2827" height="2827" alt="deepseekRat" src="https://github.com/user-attachments/assets/be0dbd80-669e-423d-8038-316b93082d7d" />
+<img width="2827" height="2827" alt="DeepseekTalking" src="https://github.com/user-attachments/assets/23ba2b65-cbe6-4220-990d-535560c2c3da" />
+
